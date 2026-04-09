@@ -1,0 +1,2 @@
+# verandapalmskissimmee
+Veranda Palms Logo
